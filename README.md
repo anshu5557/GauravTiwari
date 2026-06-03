@@ -154,9 +154,9 @@ My goal is to bridge manufacturing expertise, operational excellence, and modern
 
 ## Connect With Me
 
-📧 Email: YOUR EMAIL
+📧 Email: gauravtiwari5557@gmail.com
 
-💼 LinkedIn: YOUR LINKEDIN URL
+💼 LinkedIn: http://www.linkedin.com/in/gauravtiwari26
 
 📄 Resume: YOUR RESUME LINK
 
