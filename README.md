@@ -6,7 +6,7 @@
 
 *Ex-Tata Steel | 11+ Years in Manufacturing Operations & Maintenance | Building the Future of Data-Driven Manufacturing*
 
-[LinkedIn](https://linkedin.com/in/YOUR-LINKEDIN) • [Resume](YOUR-RESUME-LINK) • [Email](mailto:YOUR-EMAIL)
+[LinkedIn](https://www.linkedin.com/in/gauravtiwari26) • [Resume](YOUR-RESUME-LINK) • [Email](mailto:gauravtiwari5557@gmail.com)
 
 </div>
 
